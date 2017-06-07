@@ -1,1 +1,0 @@
-# nataliakatrynska.github.io
